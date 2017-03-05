@@ -67,7 +67,6 @@ A Guide for Reading Hard Texts
         -   To sum up/In
             summary\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
-
         Hey, these make your life easy.
 
 -   Define Unknown Words
